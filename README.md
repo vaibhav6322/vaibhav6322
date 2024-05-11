@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **vaibhavtripathi272001lko@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1D6bPmqbKjMCXVVuk3K-nMBGcg8sqtxgO/view?usp=sharing](https://drive.google.com/file/d/1D6bPmqbKjMCXVVuk3K-nMBGcg8sqtxgO/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1N2tolJ81ygRDmdVrpvbn4cvSlUvpDgMe/view?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
